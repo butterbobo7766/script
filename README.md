@@ -26,7 +26,7 @@ end
     
 ---- a1 ----
 function a1()
-  gg.print("Sorry, its the time to expired\n\n if you want to buy my script\n\nPlease contact me:\nWhataApp:+852 51774264")
+  gg.print("Sorry, its the time to expired\n\n  if you want to buy my script\n\n    Please contact me:\nWhataApp:+852 51774264")
   gg.clearResults()
 end
 
