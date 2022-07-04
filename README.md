@@ -1,4 +1,4 @@
-## Butter's Script ##
+## 🐮BᴜΙ͠ᴛᴇʀ Script ##
 
 My (FREE) script has the limit date. If you like it after use, please pay for V.I.P script with a cheap price! Thank You.
 
