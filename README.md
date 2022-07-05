@@ -26,11 +26,13 @@ My (FREE) script has the limit date. If you like it after use, please pay for V.
 [ғᴀsᴛsʜσσᴛ • 增強射速]
 [ʙᴜʟʟᴇᴛ ᴛʀᴀᴄᴋ • 大範圍子彈]
 [ʙʀ ᴍᴀᴘ ʜᴀᴄᴋ • 生存地圖]️
-[ʀᴀᴘɪᴅғɪʀᴇ • 無煙限火力]
+[ʜɪɢʜ ᴊᴜᴍᴘ • 跳高]
 [Guns] [Legendary Alias + M13 + Kilo141 + AK47 + DLQ33 + KM262] < All have effect >
 
 
 Other for Use:
+
+🐮BᴜΙ͠ᴛᴇʀ Script 👉🏻 https://github.com/butterbobo7766/script
 
 Guns Skins Script 👉🏻 https://mega.nz/file/mtNUnILY#HDrb1rS9tsQlyULa5h3cfYdqXj4wBqlYsgW5o5FvcEQ
 
