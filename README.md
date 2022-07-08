@@ -34,7 +34,7 @@ Other for Use:
 
 🐮BᴜΙ͠ᴛᴇʀ Script 👉🏻 https://github.com/butterbobo7766/script
 
-Guns Skins Script 👉🏻 https://mega.nz/file/mtNUnILY#HDrb1rS9tsQlyULa5h3cfYdqXj4wBqlYsgW5o5FvcEQ
+Guns Skins Script 👉🏻 https://github.com/butterbobo7766/script
 
 My Own GG 👉🏻 https://mega.nz/file/641x1SgY#0lH4D3KnQkC8B6hmO_DytsxOmlJziB7yHA5RNY354uA
 
