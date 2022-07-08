@@ -26,7 +26,7 @@ My (FREE) script has the limit date. If you like it after use, please pay for V.
 [ғᴀsᴛsʜσσᴛ • 增強射速]
 [ʙᴜʟʟᴇᴛ ᴛʀᴀᴄᴋ • 大範圍子彈]
 [ʙʀ ᴍᴀᴘ ʜᴀᴄᴋ • 生存地圖]️
-[ʜɪɢʜ ᴊᴜᴍᴘ • 跳高]
+[ɴᴏ sʜᴀᴋᴇ • 無抖動]
 [ɢᴜɴs ʜᴀᴄᴋ] [Legendary Alias + M13 + Kilo141 + AK47 + DLQ33 + ] ( All have effect )
 
 
