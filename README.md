@@ -4,7 +4,7 @@ My (FREE) script has the limit date. If you like it after use, please pay for V.
 
 免費劇本設有限期、如若使用過喜歡的話、不妨考慮向我購入、價格便宜！
 
-f you guys want to support me keep to Modify this game.
+If you guys want to support me keep to Modify this game.
 Please Donate me a cup of coffee:
 https://www.paypal.me/butterbobo
 
