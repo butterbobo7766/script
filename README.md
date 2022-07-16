@@ -4,6 +4,10 @@ My (FREE) script has the limit date. If you like it after use, please pay for V.
 
 免費劇本設有限期、如若使用過喜歡的話、不妨考慮向我購入、價格便宜！
 
+f you guys want to support me keep to Modify this game.
+Please Donate me a cup of coffee:
+https://www.paypal.me/butterbobo
+
   ⚠️ All Features ⚠️
 [ᴛɪᴍɪ (ʟᴏɢᴏ) ʙʏᴘᴀss] * ʟᴏɢᴏ防閃退 * 
 [Bʏᴘᴀss ɪɴ (Lᴏʙʙʏ)] * 大廳防封 *
@@ -26,7 +30,6 @@ My (FREE) script has the limit date. If you like it after use, please pay for V.
 [ғᴀsᴛsʜσσᴛ • 增強射速]
 [ʙᴜʟʟᴇᴛ ᴛʀᴀᴄᴋ • 大範圍子彈]
 [ʙʀ ᴍᴀᴘ ʜᴀᴄᴋ • 生存地圖]️
-[ɴᴏ sʜᴀᴋᴇ • 無抖動]
 [ɢᴜɴs ʜᴀᴄᴋ] [Legendary Alias + M13 + Kilo141 + AK47 + DLQ33 + ] ( All have effect )
 
 
